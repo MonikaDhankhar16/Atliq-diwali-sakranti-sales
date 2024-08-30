@@ -1,1 +1,1 @@
-![Alt Text](image-url-or-path)
+![Alt Text](657494.png)
